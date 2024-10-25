@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Data sciene
 - 🌱 I’m currently learning ... BSC maths and Data Science
 - 💞️ I’m looking to collaborate on ... Data Sciencen and Analysis
-- 📫 How to reach me ... samsonnoronha18@gmail.com
+- 📫 How to reach me ... samsonnoronha19@gmail.com
 - 😄 Pronouns: ...(they are only 2 gender)
 - ⚡ Fun fact: ... I am footballer and football referee as well but still getting into field.
 
